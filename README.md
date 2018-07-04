@@ -1,0 +1,1 @@
+# Maszyna_szyfrujaca_wersja_2.0
